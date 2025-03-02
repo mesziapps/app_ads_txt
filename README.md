@@ -1,1 +1,1 @@
-readme
+google.com, pub-7234356870484763, DIRECT, f08c47fec0942fa0
